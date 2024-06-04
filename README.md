@@ -6,6 +6,7 @@
 - 😄 Sou professora, proativa e inteligente: ...
 - ⚡ Gosto muito de esportes, cozinhas e tudo que seja relacionado a artes e a programação 🐱: ...
 
-![](https://media.tenor.com/kT6gMVRA-cwAAAAj/sanrio-hello-kitty.gif)
+![](https://media.tenor.com/kT6gMVRA-cwAAAAj/sanrio-hello-kitty.gif)  ![](https://media.tenor.com/MWURFoAD-hgAAAAM/cute-cat.gif)
 
-![](https://media.tenor.com/MWURFoAD-hgAAAAM/cute-cat.gif)
+
+
