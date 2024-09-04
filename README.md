@@ -9,5 +9,6 @@
 ![](https://media.tenor.com/kT6gMVRA-cwAAAAj/sanrio-hello-kitty.gif)  ![](https://media.tenor.com/MWURFoAD-hgAAAAM/cute-cat.gif)  ![](https://media.tenor.com/IwNcdswqpAwAAAAM/peach-pillow.gif)
 
 🐶![](https://media.tenor.com/D5zaYww99psAAAAj/sanrio.gif)
-![](https://tenor.com/pt-BR/view/sanrio-gif-14159609818923056895)
+![](https://media.tenor.com/xIEKHAcKvv8AAAAj/sanrio.gif)
+![](
 
