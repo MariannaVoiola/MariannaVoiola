@@ -1,4 +1,4 @@
-- 👋 Me chamo Marianna Voiola 💙
+- 👋 Me chamo Marianna Voiola 💙🚙
 - 👀 Tenho interesse em aprender programação 🐱
 - 🌱 I’m currently learning a fazer algumas programações utilizando o Javascript
 - 💞️ I’m looking to collaborate em projetos fofos e inovadores ...
@@ -9,4 +9,5 @@
 ![](https://media.tenor.com/kT6gMVRA-cwAAAAj/sanrio-hello-kitty.gif)  ![](https://media.tenor.com/MWURFoAD-hgAAAAM/cute-cat.gif)  ![](https://media.tenor.com/IwNcdswqpAwAAAAM/peach-pillow.gif)
 
 🐶![](https://media.tenor.com/D5zaYww99psAAAAj/sanrio.gif)
+![](https://tenor.com/pt-BR/view/sanrio-gif-14159609818923056895)
 
